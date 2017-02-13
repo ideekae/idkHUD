@@ -1,2 +1,0 @@
-# idkHUD
-wew im bad
